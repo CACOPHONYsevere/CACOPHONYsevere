@@ -1,8 +1,1 @@
-. Lalala! Testing! Testing!
-
-
-
-<img src="https://preview.redd.it/free-shadow-milk-cookie-gifs-v0-0274upz6y4ne1.gif?width=389&amp;auto=webp&amp;s=ec4cc9d33bbe6f3bed4fd258f947089187c1bc6d" alt="Free shadow milk cookie gifs :) : r/CookieRunKingdoms"/>![](https://github.com/user-attachments/a50060ea-3037-4647-9a50-71fe6f1d30bc) 
-
-
-
+<img src="https://64.media.tumblr.com/7b77459cdcaf08fa9050036a8c6e5e61/633daf01fdec672e-67/s500x750/e869fd307997ed27a417dafebbcab9d0b228a725.png" alt="Over Here, Stranger — Shadow Milk looks so done with Pure Vanilla, like..."/>![image](https://github.com/user-attachments/assets/b33a1edb-aef2-407e-8144-a0ee5de89601)
